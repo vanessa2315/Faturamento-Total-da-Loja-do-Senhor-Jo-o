@@ -1,0 +1,1 @@
+# Faturamento-Total-da-Loja-do-Senhor-Jo-o
