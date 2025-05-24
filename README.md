@@ -1,1 +1,1 @@
-# Faturamento-Total-da-Loja-do-Senhor-Jo-o
+# Faturamento-Total-da-Loja-do-Senhor-João
